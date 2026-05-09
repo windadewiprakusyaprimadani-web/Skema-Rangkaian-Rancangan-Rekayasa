@@ -1,1 +1,0 @@
-# Skema-Rangkaian-Rancangan-Rekayasa
